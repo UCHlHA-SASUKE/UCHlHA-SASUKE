@@ -5,7 +5,7 @@
 
 
 
-[strawpage](https://waohh.straw.page/) ㅤ｡🍅°‧ㅤ [atabook](https://uchiha.atabook.org/)
+[strawpage](https://.straw.page/) ㅤ｡🍅°‧ㅤ [atabook](https://uchiha.atabook.org/)
 
 
 ![](https://komarev.com/ghpvc/?username=UCHlHA-SASUKE&color=483248&style=plastic&label=worms&abbreviated=true)
