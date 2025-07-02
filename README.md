@@ -1,6 +1,5 @@
 <div align="center">
 
-![LRKbAnU jfif](https://github.com/user-attachments/assets/342cdb3c-04cc-43e0-b76e-2192a4577b18)
 
 <img src="https://github.com/user-attachments/assets/268d84df-de82-40d4-928e-add85d487e33"/>
 
